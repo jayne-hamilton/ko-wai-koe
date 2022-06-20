@@ -1,0 +1,1 @@
+My name is Jayne Hamilton. I was born and raised in Whanganui and my whanau still live there. I live in beautiful Queenstown. 
